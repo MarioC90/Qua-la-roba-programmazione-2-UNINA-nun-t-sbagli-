@@ -1,0 +1,1 @@
+File standard per programmi
